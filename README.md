@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @UNDC
-- 👀 I’m interested in Knowledge & development of Technology Structure Data stories
-- 🌱 I’m currently learning E -Entrepreneur Digital Marketing & Knowledge (Marketing Online Business Digital Platform)
-- 💞️ I’m looking to collaborate on Digital Technology Education & Learning Asajaya Digital Youth Community 
-- 📫 How to reach me KOMUNITI BELIA TEKNOLOGI DIGITAL ASAJAYA (KOBEDA)
+👋 Hi, I’m @UNDC
+👀 I’m interested in Knowledge & development of Technology Structure Data stories
+🌱 I’m currently learning E -Entrepreneur Digital Marketing & Knowledge (Marketing Online Business Digital Platform)
+💞️ I’m looking to collaborate on Digital Technology Education & Learning Asajaya Digital Youth Community 
+📫 How to reach me KOMUNITI BELIA TEKNOLOGI DIGITAL ASAJAYA (KOBEDA)
 organisasi  perkhidmatan  sosial belia 
 -Platform Informasi & Pembangunan Teknologi e-Digital Komuniti Belia Asajaya-
 
